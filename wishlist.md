@@ -6,7 +6,25 @@ permalink: /verlanglijst
 
 # Lezen
 
+https://www.wikihow.com/Gift-a-Kindle-Book-on-Amazon
+https://support.apple.com/en-au/HT201783
+
+## Nederlands
+
 * EUR 25,-- [Thuis bier brouwen](https://www.bol.com/nl/nl/p/thuis-bier-brouwen/9300000040370728)
+* EUR 12,99 [De filosofie van een kat](https://www.bol.com/nl/nl/p/de-filosofie-van-een-kat/9300000005838564/)
+* EUR 20,-- [Als de kat het voor het zeggen had](https://www.bol.com/nl/nl/p/als-de-kat-het-voor-het-zeggen-had/9300000004952585/)
+* EUR  3,99 [Wat je kat echt denkt](https://www.bol.com/nl/nl/p/wat-je-kat-echt-denkt/9300000075007599/)
+
+## Engels
+
+* EUR 8,69 [Algorithms to Live By](https://www.bol.com/nl/nl/p/algorithms-to-live-by-the-computer-science-of-human-decisions/9200000049846177/)
+* EUR 9,49 [Breath](https://www.bol.com/nl/nl/p/breath/9200000122423500/)
+* EUR 7,69 [The Age of Surveillance Capitalism](https://www.bol.com/nl/nl/p/the-age-of-surveillance-capitalism/9200000075624094/)
+* EUR 9,49 [A Brief History of Time](https://www.bol.com/nl/nl/p/a-brief-history-of-time/9200000000492129/)
+* EUR 9,49 [Surely You're Joking Mr Feynman](https://www.bol.com/nl/nl/p/surely-you-re-joking-mr-feynman/9200000032214222/)
+* EUR 7,99 [Immune](https://www.bol.com/nl/nl/p/immune/9300000029204244/)
+* EUR 13,99 [Chaos](https://www.bol.com/nl/nl/p/chaos/9200000033977631/)
 
 # Games
 
