@@ -6,8 +6,10 @@ permalink: /verlanglijst
 
 # Lezen
 
-https://www.wikihow.com/Gift-a-Kindle-Book-on-Amazon
-https://support.apple.com/en-au/HT201783
+https://www.wikihow.com/Gift-a-Kindle-Book-on-Amazon  
+https://support.apple.com/en-au/HT201783  
+https://support.ebooks.com/hc/en-gb/articles/360000681736-Making-a-gift-purchase  
+https://support.ebooks.com/hc/en-gb/articles/360000681315  
 
 ## Nederlands
 
