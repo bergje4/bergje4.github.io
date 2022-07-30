@@ -38,17 +38,17 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 * Electrische BBQ aansteker
 
+# Hobby
 
-# Games
+## Houtbewerking
+
+* EUR 169,-- [Stanley SweetHeart SW steekbeitelset incl. lederen foudraal 8-delig](https://baptist.nl/steek-en-hakbeitels/steek-en-hakbeitelsets/stanley-8-delige-sweetheart-sw-steekbeitelset-incl-lederen-foudraal)
+
+## Nintendo switch
 
 * EUR 29,99 [Switch - Boulder Dash Ultimate Collection](https://www.nedgame.nl/nintendo-switch/boulder-dash-ultimate-collection/1085123471/)
 * EUR 29,99 [Switch - Civilization VI](https://www.nedgame.nl/nintendo-switch/civilization-vi/3137696031/)
-
-
-
-# Koffie
-
-* Speciale koffiebonen
+* EUR 79,99 [Nintendo Switch Pro Controller](https://www.nedgame.nl/nintendo-switch/nintendo-switch-pro-controller/8886865439/)
 
 # Sport
 
@@ -77,7 +77,11 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 * EUR 69,95 [Moon Climbing - Moon Bouldering Bag - Schoudertas](https://www.bergfreunde.nl/moon-climbing-moon-bouldering-bag-schoudertas/)
 * Moon Climbing - One Five Nine Hoody - Large]()
 
+## Fitness
+
+* EUR 84,95 [Hex Dumbbells 2 x 10kg](https://www.bol.com/nl/nl/p/core-power-rubber-hex-dumbbells-10-kg/9200000113074979/)
+
 # Altijd goed
 
 * Speciale biertjes
-* 
+* Speciale koffiebonen
