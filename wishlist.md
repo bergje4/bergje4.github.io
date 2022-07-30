@@ -32,7 +32,8 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 ## Pizza
 
-* Pizza schep
+* EUR 59,95 [Pizza schep](https://shop.italieplein.nl/product/pizzaschep-azzurra/)
+* EUR 8,89 [Brabantia Profile Pizzasnijder/deegsnijder - RVS](https://www.bol.com/nl/nl/p/brabantia-profile-pizzasnijder-deegsnijder-rvs/9200000130662309/)
 
 ## BBQ
 
@@ -72,10 +73,10 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 * EUR 94,50 [Delfts Bleau 10x strippenkaart](https://www.delftsbleau.nl/tarieven/)
 * EUR  7,84 Moon Climbing - Moon Dust [link](https://www.bergfreunde.nl/moon-climbing-moon-dust-magnesium/), [link](https://www.klimwinkel.nl/moon-climbing-moon-dust) []()
 * EUR 69,95 [Lattice - Triple Rung - Trainingsbord](https://www.bergfreunde.nl/lattice-triple-rung-trainingsbord/)
-* Powerball
-* Ironmind Rubber bands
+* EUR 29,99[Ironmind Rubber bands](https://www.amazon.de/-/en/Ironmind-Expand-Your-Hand-Bands-Captains-IronMind/dp/B0080J1BRO)
 * EUR 69,95 [Moon Climbing - Moon Bouldering Bag - Schoudertas](https://www.bergfreunde.nl/moon-climbing-moon-bouldering-bag-schoudertas/)
-* Moon Climbing - One Five Nine Hoody - Large]()
+* EUR 53,95 [PowerBall Spinner Autostart Pro](https://www.bol.com/nl/nl/p/powerball-spinner-autostart-pro/9200000063373561/)
+* Moon Climbing - One Five Nine Hoody - Large
 
 ## Fitness
 
