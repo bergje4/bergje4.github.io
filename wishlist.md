@@ -28,20 +28,38 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 * EUR 7,99 [Immune](https://www.bol.com/nl/nl/p/immune/9300000029204244/)
 * EUR 13,99 [Chaos](https://www.bol.com/nl/nl/p/chaos/9200000033977631/)
 
+# Koken
+
+## Pizza
+
+* Pizza schep
+
+## BBQ
+
+* Electrische BBQ aansteker
+
+
 # Games
 
 * EUR 29,99 [Switch - Boulder Dash Ultimate Collection](https://www.nedgame.nl/nintendo-switch/boulder-dash-ultimate-collection/1085123471/)
 * EUR 29,99 [Switch - Civilization VI](https://www.nedgame.nl/nintendo-switch/civilization-vi/3137696031/)
 
-# BBQ
 
-* Electrische BBQ aansteker
 
 # Koffie
 
 * Speciale koffiebonen
 
 # Sport
+
+## Wandelen
+
+* EUR 5,95 [Bever Sirex Zitlap](https://www.bever.nl/p/bever-sirex-zitlap-MCAEA42004.html?colour=2219)
+* Regenjas
+* Care plus ehbo set
+* Verrekijker (?)
+* Wandelstokjes (?)
+* EUR 39,95 [Garmin Tempe](https://www.bever.nl/p/garmin-tempe-temperatuur-sensor-NCCEXX2066.html)
 
 ## Calisthenics
 
@@ -52,6 +70,14 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 ## Klimmen
 
 * EUR 94,50 [Delfts Bleau 10x strippenkaart](https://www.delftsbleau.nl/tarieven/)
-* EUR  7,84 Moon Climbing Moon Dust [link](https://www.bergfreunde.nl/moon-climbing-moon-dust-magnesium/), [link](https://www.klimwinkel.nl/moon-climbing-moon-dust) []()
+* EUR  7,84 Moon Climbing - Moon Dust [link](https://www.bergfreunde.nl/moon-climbing-moon-dust-magnesium/), [link](https://www.klimwinkel.nl/moon-climbing-moon-dust) []()
 * EUR 69,95 [Lattice - Triple Rung - Trainingsbord](https://www.bergfreunde.nl/lattice-triple-rung-trainingsbord/)
+* Powerball
+* Ironmind Rubber bands
+* EUR 69,95 [Moon Climbing - Moon Bouldering Bag - Schoudertas](https://www.bergfreunde.nl/moon-climbing-moon-bouldering-bag-schoudertas/)
+* Moon Climbing - One Five Nine Hoody - Large]()
 
+# Altijd goed
+
+* Speciale biertjes
+* 
