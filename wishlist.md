@@ -81,6 +81,7 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 ## Fitness
 
 * EUR 84,95 [Hex Dumbbells 2 x 10kg](https://www.bol.com/nl/nl/p/core-power-rubber-hex-dumbbells-10-kg/9200000113074979/)
+* EUR 129,-- Plankpad Pro
 
 ## Health
 
