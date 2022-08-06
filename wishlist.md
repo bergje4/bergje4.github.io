@@ -82,6 +82,10 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 * EUR 84,95 [Hex Dumbbells 2 x 10kg](https://www.bol.com/nl/nl/p/core-power-rubber-hex-dumbbells-10-kg/9200000113074979/)
 
+## Health
+
+* EUR 29,99 [Braun Saturatiemeter 1](https://www.braunhealthcare.com/nl_nl/oximeter/oximeter/pulse-oximeter-1)
+
 # Altijd goed
 
 * Speciale biertjes
