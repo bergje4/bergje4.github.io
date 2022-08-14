@@ -35,6 +35,7 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 * EUR 59,95 [Pizza schep](https://shop.italieplein.nl/product/pizzaschep-azzurra/)
 * EUR 28,95 [Geëmailleerde pizzabakplaat](https://shop.italieplein.nl/product/geemailleerde-pizzabakplaat/)
+* EUR  9,95 [Precisie Mini Weegschaal](https://www.bol.com/nl/nl/p/keuken-weegschaal-digitaal-precisie-mini-weegschaal-0-01-200-gram/9200000120220627/)
 * EUR 8,89 [Brabantia Profile Pizzasnijder/deegsnijder - RVS](https://www.bol.com/nl/nl/p/brabantia-profile-pizzasnijder-deegsnijder-rvs/9200000130662309/)
 
 ## BBQ
