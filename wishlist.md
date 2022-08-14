@@ -13,7 +13,8 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 ## Nederlands
 
-* EUR 25,-- [Thuis bier brouwen](https://www.bol.com/nl/nl/p/thuis-bier-brouwen/9300000040370728)
+* EUR 25,-- [Thuis bier brouwen](https://www.bol.com/nl/nl/p/thuis-bier-brouwen/9300000040370728/)
+* EUR 33,99 [Kookbijbels  -   BBQBijbel](https://www.bol.com/nl/nl/p/kookbijbels-bbqbijbel/9200000053205733/)
 * EUR 12,99 [De filosofie van een kat](https://www.bol.com/nl/nl/p/de-filosofie-van-een-kat/9300000005838564/)
 * EUR 20,-- [Als de kat het voor het zeggen had](https://www.bol.com/nl/nl/p/als-de-kat-het-voor-het-zeggen-had/9300000004952585/)
 * EUR  3,99 [Wat je kat echt denkt](https://www.bol.com/nl/nl/p/wat-je-kat-echt-denkt/9300000075007599/)
