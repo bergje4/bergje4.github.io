@@ -42,7 +42,7 @@ https://www.bol.com/nl/nl/p/thinking-fast-slow/9200000001150837/
 * EUR 59,95 [Pizza schep](https://shop.italieplein.nl/product/pizzaschep-azzurra/)
 * EUR 28,95 [Geëmailleerde pizzabakplaat](https://shop.italieplein.nl/product/geemailleerde-pizzabakplaat/)
 * EUR  9,95 [Precisie Mini Weegschaal](https://www.bol.com/nl/nl/p/keuken-weegschaal-digitaal-precisie-mini-weegschaal-0-01-200-gram/9200000120220627/)
-* EUR 8,89 [Brabantia Profile Pizzasnijder/deegsnijder - RVS](https://www.bol.com/nl/nl/p/brabantia-profile-pizzasnijder-deegsnijder-rvs/9200000130662309/)
+* EUR  8,89 [Brabantia Profile Pizzasnijder/deegsnijder - RVS](https://www.bol.com/nl/nl/p/brabantia-profile-pizzasnijder-deegsnijder-rvs/9200000130662309/)
 
 ## BBQ
 
@@ -83,7 +83,7 @@ https://www.bol.com/nl/nl/p/thinking-fast-slow/9200000001150837/
 * EUR  7,84 Moon Climbing - Moon Dust [link](https://www.bergfreunde.nl/moon-climbing-moon-dust-magnesium/), [link](https://www.klimwinkel.nl/moon-climbing-moon-dust) []()
 * EUR 69,95 [Lattice - Triple Rung - Trainingsbord](https://www.bergfreunde.nl/lattice-triple-rung-trainingsbord/)
 * EUR 29,99 [Ironmind Rubber bands](https://www.amazon.de/-/en/Ironmind-Expand-Your-Hand-Bands-Captains-IronMind/dp/B0080J1BRO)
-* EUR 69,95 [Moon Climbing - Moon Bouldering Bag - Schoudertas](https://www.bergfreunde.nl/moon-climbing-moon-bouldering-bag-schoudertas/)
+* EUR 69,95 [Moon Climbing - Moon Bouldering Bag - Schoudertas]([https://www.bergfreunde.nl/moon-climbing-moon-bouldering-bag-schoudertas/](https://www.bergzeit.nl/p/moon-moon-bouldering-bag/5019179/?itemId=5019179-009)
 * EUR 53,95 [PowerBall Spinner Autostart Pro](https://www.bol.com/nl/nl/p/powerball-spinner-autostart-pro/9200000063373561/)
 * Moon Climbing - One Five Nine Hoody - Large
 
