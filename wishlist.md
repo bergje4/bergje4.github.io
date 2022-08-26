@@ -31,6 +31,11 @@ https://support.ebooks.com/hc/en-gb/articles/360000681315
 
 # Hobby
 
+## Fotografie
+
+* EUR 39,95 [HOYA 67MM UV PRIME-XS](https://www.kamera-express.nl/hoya-67mm-uv-prime-xs)
+* EUR 44,99 [PEAK DESIGN CL-3 CLUTCH](https://www.kamera-express.nl/peak-design-cl-3-clutch)
+
 ## Houtbewerking
 
 * EUR 169,-- [Stanley SweetHeart SW steekbeitelset incl. lederen foudraal 8-delig](https://baptist.nl/steek-en-hakbeitels/steek-en-hakbeitelsets/stanley-8-delige-sweetheart-sw-steekbeitelset-incl-lederen-foudraal)
@@ -88,4 +93,3 @@ https://brewmonkey.nl/compleet-bierbrouw-pakket-tripel-bier
 * Chocolade > 75% Cacao
 * iTunes te goed
 * Bol cadeau kaart
-* 
